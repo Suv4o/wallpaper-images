@@ -8,6 +8,8 @@ If you are looking to spruce up your desktop screens, feel free to choose from t
 
 All images are taken by myself. As a passionate photograher, photography is a form of creative expression whenever I get the chance to step away from the everyday hustle and bustle of the programming world.
 
+**IMPORTANT: ALL IMAGES ARE FOR PERSONAL USE ONLY. DO NOT USE FOR COMMERCIAL PURPOSES!**
+
 I hope you enjoy them.
 
 Cheers,
